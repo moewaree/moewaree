@@ -22,7 +22,7 @@ $${\color{#ede7ce} my \space ponies \space are \space never \space free \space t
 
 $${\color{#3b3e2d}\Large BOUNDARIES}$$
 
-$${\color{#96a142} please \space dont \space use \space overly \space sexual/gendered \space terms \space :c }$$
+$${\color{#96a142} dont \space use \space overly \space sexual/gendered \space terms \space :c }$$
 
 $${\color{#aca046} basic \space dni, \space besides \space that \space i \space block \space freely \space c:}$$
 
