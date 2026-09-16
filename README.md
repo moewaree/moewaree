@@ -12,17 +12,17 @@ $${\color{#4d5814}\huge ONYX \space \color {#6b7828} / \space \color {#747c15} b
 
 $${\color{#f3f07f} THEY/IT}$$
 
-$${\color{#ebf09c} c+h \space encouraged, \space and \space w2i! }$$
+$${\color{#ebf09c} c+h \space encouraged, \space and \space w2i! \space c: }$$
 
-$${\color{#f7ffca} part \space of \space a \space system \space with \space randy \space and \space dev, \space their \space pages \space will \space be \space linked \space below \space c:}$$
+$${\color{#f7ffca} part \space of \space a \space system \space with \space randy \space and \space dev \space c:}$$
 
 $${\color{#ede7ce} my \space ponies \space are \space never \space free \space to \space use}$$
 
 ---
 
-$${\color{#91ad03} we \space are \space seventeen, \space anyone \space under \space fourteen \space DNI }$$
+$${\color{#3b3e2d}\Large BOUNDARIES}$$
 
-$${\color{#96a142} please \space do \space not \space vent \space to \space me, \space as \space i \space am \space not \space good \space at \space comforting}$$
+$${\color{#96a142} please \space dont \space use \space overly \space sexual/gendered \space terms \space :c }$$
 
 $${\color{#aca046} basic \space dni, \space besides \space that \space i \space block \space freely \space c:}$$
 
