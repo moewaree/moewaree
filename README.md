@@ -4,8 +4,9 @@
 
 </div>
 
-<div align="center">
+<div align="left">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Chelsea+Market&duration=3500&pause=200&color=9fb917&center=true&width=435&lines=WIP!)](https://git.io/typing-svg)
+<img width="350" height="350" src="https://github.com/user-attachments/assets/0994f408-8526-4cf3-b8d2-19a83f7176f3"/>
+
 
 </div>
