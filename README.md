@@ -30,6 +30,10 @@ $${\color{#aca046} basic \space dni, \space besides \space that \space i \space 
 
 <img width="650" alt="1000021234" src="https://github.com/user-attachments/assets/ca45a80c-2d94-48c6-a5e4-20c971fe16c4" />
 
+[randys page !](https://github.com/butchvesto)
+
+(dev has not made a page yet 8>[^c])
+
 still a wip (grabbing everyones pages and art credits [c^]<8)
 
 </div>
