@@ -12,11 +12,11 @@ $${\color{#4d5814}\huge ONYX \space \color {#6b7828} / \space \color {#747c15} b
 
 $${\color{#f3f07f} THEY/IT}$$
 
-$${\color{#ebf09c} c+h \space encouraged, \space and \space w2i! \space i \space probably \space will \space not \space see \space your \space message \space if \space you \space dont }$$
+$${\color{#ebf09c} c+h \space encouraged, \space and \space w2i! }$$
 
-$${\color{#f7ffca} i \space am \space part \space of \space a \space system \space with \space randy \space and \space dev, \space their \space pages \space will \space be \space linked \space below \space c:}$$
+$${\color{#f7ffca} part \space of \space a \space system \space with \space randy \space and \space dev, \space their \space pages \space will \space be \space linked \space below \space c:}$$
 
-$${\color{#ede7ce} my \space ponies \space are \space never \space free \space to \space use, \space i \space am \space not \space too \space fond \space of \space copycats \space :c}$$
+$${\color{#ede7ce} my \space ponies \space are \space never \space free \space to \space use}$$
 
 ---
 
