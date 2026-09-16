@@ -34,6 +34,6 @@ $${\color{#aca046} basic \space dni, \space besides \space that \space i \space 
 
 (dev has not made a page yet 8>[^c])
 
-still a wip (grabbing everyones pages and art credits [c^]<8)
+[art credits c:](https://x.com/expiredjournal)
 
 </div>
