@@ -32,7 +32,7 @@ $${\color{#aca046} basic \space dni, \space besides \space that \space i \space 
 
 [randys page !](https://github.com/butchvesto)
 
-(dev has not made a page yet 8>[^c])
+[devs page !](https://github.com/Devestling)
 
 [art credits c:](https://x.com/expiredjournal)
 
