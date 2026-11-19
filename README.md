@@ -14,7 +14,7 @@ $${\color{#f3f07f} IT/ITS}$$
 
 $${\color{#ebf09c} c+h \space encouraged, \space and \space w2i! \space c: }$$
 
-$${\color{#f7ffca} i \space forget \space things \space a \space lot \space be \space patient \space ! \space c:}$$
+$${\color{#f7ffca} i \space forget \space things \space a \space lot, \space be \space patient \space ! \space c:}$$
 
 $${\color{#ede7ce} my \space ponies \space are \space never \space free \space to \space use}$$
 
