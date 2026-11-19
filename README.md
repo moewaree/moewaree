@@ -8,7 +8,7 @@
 
 <img align="left" width="350" src="https://github.com/user-attachments/assets/0994f408-8526-4cf3-b8d2-19a83f7176f3"/>
 
-$${\color{#4d5814}\huge ONYX \space \color {#6b7828} / \space \color {#747c15} badware}$$
+$${\color{#4d5814}\huge ONYX \space \color {#6b7828} / \space \color {#747c15} angel}$$
 
 $${\color{#f3f07f} IT/ITS}$$
 
