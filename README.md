@@ -10,11 +10,11 @@
 
 $${\color{#4d5814}\huge ONYX \space \color {#6b7828} / \space \color {#747c15} badware}$$
 
-$${\color{#f3f07f} THEY/IT}$$
+$${\color{#f3f07f} IT/ITS}$$
 
 $${\color{#ebf09c} c+h \space encouraged, \space and \space w2i! \space c: }$$
 
-$${\color{#f7ffca} part \space of \space a \space system \space with \space randy \space and \space dev \space c:}$$
+$${\color{#f7ffca} i \space forget \space things \space a \space lot \space be \space patient \space ! \space c:}$$
 
 $${\color{#ede7ce} my \space ponies \space are \space never \space free \space to \space use}$$
 
@@ -22,17 +22,13 @@ $${\color{#ede7ce} my \space ponies \space are \space never \space free \space t
 
 $${\color{#3b3e2d}\Large BOUNDARIES}$$
 
-$${\color{#96a142} dont \space use \space overly \space sexual/gendered \space terms \space :c }$$
+$${\color{#96a142} dont \space use \space overly \space sexual/gendered \space terms}$$
 
 $${\color{#aca046} basic \space dni, \space besides \space that \space i \space block \space freely \space c:}$$
 
 ---
 
 <img width="650" alt="1000021234" src="https://github.com/user-attachments/assets/ca45a80c-2d94-48c6-a5e4-20c971fe16c4" />
-
-[randys page !](https://github.com/butchvesto)
-
-[devs page !](https://github.com/Devestling)
 
 [art credits c:](https://x.com/expiredjournal)
 
